@@ -1,5 +1,5 @@
 # 💫 About Me:
-Computer Science student at the University of Pennsylvania.<br>Focused on Data Science and Mathematics.<br><br>
+Computer Science student at the University of Pennsylvania.<br>Focused on Data Science and Mathematics.<br>Founder and owner of NMRC - retail and wholesale rare coin distribution.<br><br>
 
 
 ## 🌐 Socials:
