@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 Computer Science and Mathematics student at the University of Pennsylvania.<br>Currently focused on computer visioin.<br>Founder and owner of NMRC - retail and wholesale acquisition of rare coins.<br><br>
 
 
