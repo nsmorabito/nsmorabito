@@ -1,5 +1,5 @@
 # About Me:
-Computer Science and Mathematics student at the University of Pennsylvania.<br>Currently focused on computer vision.<br>Founder and owner of NMRC - retail and wholesale acquisition of rare coins.<br><br>
+Computer Science and Mathematics student at the University of Pennsylvania.<br>Currently focused on computer vision.<br>Founder and owner of NMRC - retail and wholesale acquisition of rare coins.<br>Co-Founder and CTO of Numismy.com, an all-in-one platform for trading rare coins and precious metals. Over $200M of inventory listed.<br><br>
 
 
 ## 🌐 Socials:
